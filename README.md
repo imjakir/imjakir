@@ -1,4 +1,4 @@
-### Hi there, I'm Jakir Husain 👋
+### Hi there, I'm Jakir Husain. 👋
 
 <div align="center">
   <div>
